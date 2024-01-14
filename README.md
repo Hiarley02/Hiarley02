@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Hiarley02 tenho 16 anos
+- 👋 Hi, I’m @Hiarley02 tenho 16 anos 
 - 👀 I’m interested in ganhar conhecimento e aprendizagem 
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning programação pois estou começando agora na área de programação 
+- 💞️ I’m looking to collaborate on várias coisas 
 - 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
