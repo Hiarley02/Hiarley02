@@ -2,7 +2,7 @@
 - 👀 I’m interested in ganhar conhecimento e aprendizagem 
 - 🌱 I’m currently learning programação pois estou começando agora na área de programação 
 - 💞️ I’m looking to collaborate on várias coisas 
-- 📫 How to reach me 
+- 📫 How to reach me no meu Instagram: Hiarley02
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
